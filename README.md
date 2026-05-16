@@ -2,9 +2,9 @@
 
 ## Projeto: Atividade 15/05
 
-### Aluna
+### Alunos
 
-Ana Luiza
+Ana Luiza e Luan Matheus
 
 ---
 
